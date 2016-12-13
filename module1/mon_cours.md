@@ -12,6 +12,8 @@ Au point de départ, dès l'Antiquité, si les "Histoires" d'Hérodote (v.485-42
 
 ## Vidéo
 
+[Introduction au web](https://www.youtube.com/watch?v=RAE_RpfGeUc){: .cours_video }
+
 (https://www.youtube.com/watch?v=RAE_RpfGeUc)
 
 
