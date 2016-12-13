@@ -4,10 +4,15 @@ Au point de départ, dès l'Antiquité, si les "Histoires" d'Hérodote (v.485-42
 ## Articles à lire 
 
  **Althusser Louis**, Balibar Etienne : Lire le Capital. Paris, Maspero, 1969.
+ 
  **Ariès Philippe** : Histoire des Populations Françaises. Paris Seuil, 2° ed. 1971.
+ 
  **Carbonell Charles Olivier** : L'Historiographie. Paris, PUF, 1981.
+ 
  **Foucault Michel** : Réponse au Cercle d'Epistémologie in Cahiers pour l'Analyse n°9 1968.
+ 
  **Halkin Léon** : Initiation à la Critique Historique. Paris, Armand Colin, 1973.
+ 
  **Popper Karl** : Misère de l'Historicisme. Paris, Plon, 1956.
 
 
