@@ -10,6 +10,7 @@ Au point de départ, dès l'Antiquité, si les "Histoires" d'Hérodote (v.485-42
  **Halkin Léon** : Initiation à la Critique Historique. Paris, Armand Colin, 1973.
  **Popper Karl** : Misère de l'Historicisme. Paris, Plon, 1956.
 
+
 Voici une sous-section de cours **Esc@pad**
 
 
