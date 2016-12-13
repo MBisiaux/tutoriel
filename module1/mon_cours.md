@@ -10,7 +10,9 @@ Au point de départ, dès l'Antiquité, si les "Histoires" d'Hérodote (v.485-42
 - **Popper Karl** : Misère de l'Historicisme. Paris, Plon, 1956.
 
 
-Voici une sous-section de cours **Esc@pad**
+## Vidéo
+
+(https://www.youtube.com/watch?v=RAE_RpfGeUc)
 
 
 # Une nouvelle section
